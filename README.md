@@ -25,7 +25,7 @@
 #### 📞 Contact
 ***Email.*** [lese9824@naver.com](lese9824@naver.com) &nbsp;
 
-***Resume.*** [https://vash111.notion.site](https://www.notion.so/18569888023180588af7d01633ae32b8?pvs=4)
+***Resume.*** [https://vash111.notion.site]([https://www.notion.so/18569888023180588af7d01633ae32b8?pvs=4](https://friendly-peripheral-04d.notion.site/18569888023180588af7d01633ae32b8))
 
 
 #### 📮 Channel
